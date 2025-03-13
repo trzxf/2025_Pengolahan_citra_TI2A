@@ -1,0 +1,1 @@
+# 2025_Pengolahan_citra_TI2A
